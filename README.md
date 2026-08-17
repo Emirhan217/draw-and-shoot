@@ -1,1 +1,1 @@
-draw and shoot
+kale rota
